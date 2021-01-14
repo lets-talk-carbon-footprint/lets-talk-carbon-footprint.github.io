@@ -1,1 +1,1 @@
-# lets-talk-carbon-footprint.github.io
+# lets-talk-carbon-footprint
